@@ -16,4 +16,4 @@ Receiving a call back to return next summer because of my work at the company. I
 Some days required long hours, which could be draining.
 
 ## Grade
-**A**: The experience was valuable, and being invited back made it a clear success.
+**A**

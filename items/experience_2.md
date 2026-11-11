@@ -16,4 +16,4 @@ Running my first successful event. It was the moment I saw that my planning and 
 Managing the schedules of multiple people. Coordinating availability is a constant balancing act.
 
 ## Grade
-**B**: Mostly enjoyable, with flexibility and event experience as the highlights and scheduling as the main challenge.
+**B**

@@ -13,7 +13,7 @@ It pushed me far outside my comfort zone and showed me what I'm capable of.
 Sharing a braai (South African barbecue) lunch with the group after a 5-day survival challenge where we had very little food or shelter.
 
 ## What didn't you enjoy about it?
-My equipment was hard to carry. I'm short, so I couldn't secure the bags properly.
+My equipment was hard to carry. I have a short torso, so I couldn't secure the camping bags on my back properly.
 
 ## Grade
-**A**: A challenging, memorable experience, and the equipment struggles were a small price for it.
+**A**

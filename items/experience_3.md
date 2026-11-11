@@ -16,4 +16,4 @@ Winning my first medal. I had been discouraged from competing in primary school,
 The 3am training sessions.
 
 ## Grade
-**C**: I'm proud of what I achieved, but the early mornings kept it from being more enjoyable.
+**C**

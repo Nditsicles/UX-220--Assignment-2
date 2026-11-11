@@ -15,4 +15,4 @@ Holding the newborns for the first time. They were usually quarantined for their
 Toddlers are messy, and cleaning up after several of them at feeding time was exhausting.
 
 ## Grade
-**B**: Mostly enjoyable and rewarding, though the messy feeding times wore me out.
+**B**
